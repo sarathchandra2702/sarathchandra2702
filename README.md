@@ -8,4 +8,5 @@
 💼 Open to collaborations in AI/ML, Data Analytics, and Python projects.  
 
 📊 I love turning data into insights and building projects that make an impact.  
+⚡ Personal interests: Fitness through gym workouts & expanding knowledge through reading books.  
 📫 Connect with me: [LinkedIn] (https://www.linkedin.com/in/sarathbhimineni/) | [Email] (mailto:bhiminenis1@montclair.edu)  
