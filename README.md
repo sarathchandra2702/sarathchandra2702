@@ -10,6 +10,6 @@
 📊 I love turning data into insights and building projects that make an impact.  
 ⚡ Personal interests: Fitness through gym workouts & expanding knowledge through reading books.  
 📫 **Connect with me:**  
-- [Portfolio] (https://sarathchandrabhimineni.lovable.app) – Explore projects & contact form  
+- [Portfolio] (https://sarathchandra.online/) – Explore projects & contact form  
 - [LinkedIn] (https://www.linkedin.com/in/sarathbhimineni/) – Professional networking  
 - [Email] (mailto:bhiminenis1@montclair.edu) – Direct message
